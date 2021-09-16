@@ -1,2 +1,2 @@
 # mhmdvz
-https://mohammadvz.github.io/mhmdvz/pages/web.html
+https://mohammadvz.github.io/mhmdvzz/pages/web.html
